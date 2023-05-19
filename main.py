@@ -1,5 +1,5 @@
-# Curtis Cheshire
-# Student ID: 010713063
+# Curtis C
+# Student ID: *********
 # C950 - NHP2
 # 5-17-2023
 
